@@ -1,6 +1,8 @@
 ### 🌸what's up?;)🌸
 
-❀ 🔭 I’m currently studying 
+❀ 🔭 I’m currently studying
+
+❀ ✏️ Commissions open
 
 ❀ 🌱 I’m currently learning
 
