@@ -2,7 +2,9 @@
 
 ❀ 🔭 I’m currently studying
 
-❀ ✏️ Commissions open
+❀ ✏️ Systems development 1/4- SENAI
+
+❀ 🎨 Commissions open
 
 ❀ 🌱 I’m currently learning
 
