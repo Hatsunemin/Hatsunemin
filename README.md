@@ -1,4 +1,4 @@
-### 🌸what's up?;)🌸
+### 🐻what's up?;)🐻
 
 ❀ 🔭 I’m currently studying
 
